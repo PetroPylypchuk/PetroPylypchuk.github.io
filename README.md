@@ -1,1 +1,0 @@
-PetroPylypchuk.github.io
